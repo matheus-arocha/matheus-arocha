@@ -12,7 +12,7 @@ Eu sou o Matheus Rocha, Programador Full Stak com experiência acadêmica e free
 
 <br>
 
-🚀 Busco sempre aprimorar minhas habilidades e acompanhar as tendências do mercado, desenvolvendo soluções inovadoras e de alto impacto.
+🚀 Busco sempre estar aprimorar minhas habilidades e acompanhar as tendências do mercado, desenvolvendo soluções inovadoras e de alto impacto.
 
 📩 Conecte-se comigo:
 
